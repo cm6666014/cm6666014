@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ****
 - 📫 How to reach me you can't
 - 😄 Pronouns: him/he/amo/gus/cringe
-- ⚡ Fun fact: fun facts arn't fun at all
+- ⚡ Fun fact: fun facts are not fun at all
 
 <!---
 cm6666014/cm6666014 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
