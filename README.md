@@ -5,7 +5,6 @@
 - 📫 How to reach me you can't
 - 😄 Pronouns: him/he/amo/gus/cringe
 - ⚡ Fun fact: fun facts are not fun at all
-- Youtube link: https://www.youtube.com/@yoshi6014-g
 
 <!---
 cm6666014/cm6666014 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
